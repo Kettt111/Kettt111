@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kettt111
-- 👀 I’m interested in chanel clhothes
+- 👀 I’m interested in chanel 
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me i`ts a secret
